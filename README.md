@@ -1,0 +1,1 @@
+# semana_tec_oct_2026
